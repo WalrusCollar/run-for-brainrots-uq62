@@ -1,4 +1,4 @@
-
+Experience run for brainrots like never before with smart run for brainrots Scripts, the #1 Script. Includes fly and auto-collect for unbeatable
 
 
 
